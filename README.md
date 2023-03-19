@@ -1,2 +1,5 @@
-# MAHADI-LITE
-𝗘𝗔𝗦𝗬 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 𝗖𝗢𝗢𝗞𝗜𝗘 𝗚𝗘𝗡𝗔𝗥𝗘𝗧𝗢𝗥
+# EASY FACEBOOK COOKIE GENAREYOR
+
+# How to Download
+Click on Download Button to download Latest Version of **MAHADI-LITE+**<br>
+[![Download apk](https://custom-icon-badges.herokuapp.com/badge/-Download-blue?style=for-the-badge&logo=download&logoColor=white "Download Apk")](https://www.mediafire.com/file/uwkb7fsh04rezm0/MAHADI-143.apk/file)
